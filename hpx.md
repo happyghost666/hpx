@@ -1,1 +1,0 @@
-![QQ图片20230613144954](C:\Users\ghost\Pictures\Saved Pictures\QQ图片20230613144954.jpg)
